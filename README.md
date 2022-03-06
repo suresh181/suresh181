@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sureshssv1808@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1cxUfmanUkl6UmOhRP20UCwMnLV1-Cj7R/view?usp=sharing](https://drive.google.com/file/d/1cxUfmanUkl6UmOhRP20UCwMnLV1-Cj7R/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1s_QMOPUOOKs8Pm-oUPBE290_yiryVpWN/view?usp=sharing](https://drive.google.com/file/d/1s_QMOPUOOKs8Pm-oUPBE290_yiryVpWN/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
